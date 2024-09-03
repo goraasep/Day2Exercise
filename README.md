@@ -1,1 +1,1 @@
-Exercise for 2nd day of DTI Purwadhika
+Exercise for 2nd day of DTI Purwadhika.
